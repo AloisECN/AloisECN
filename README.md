@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AloisECN
+- 👀 I’m interested in rowing and coding
+- 🌱 I’m currently learning a bunch of different languages 
+- 📫 How to reach me :  marechalalois@yahoo.com
